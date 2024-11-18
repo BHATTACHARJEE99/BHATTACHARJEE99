@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BHATTACHARJEE99
 - 👀 I’m interested in Business and Technology
 - 🌱 I’m currently learning Business Computer Information Systems
-- 💞️ I’m looking to collaborate on Business analysis
+- 💞️ I’m looking to collaborate on Business Analysis
 - 📫 How to reach me linkedIn: pralaybhatt99
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love to wakeboard
